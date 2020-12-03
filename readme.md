@@ -1,0 +1,1 @@
+White Sauce pasta is a delicious dish made up of pasta, cheese, milk, butter and herbs. It is basically cooked pasta tossed in a cheesy white sauce. White sauce is also known as bechamel sauce and is made using flour,butter and milk. It is originated from Italian and french cuisines and is a base for many other sauce recipie. 
